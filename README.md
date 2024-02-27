@@ -1,4 +1,4 @@
-### Hi there 👋
+![ezgif-1-f22f08f964](https://github.com/verdulife/verdulife/assets/18669273/e3913959-ae35-4d14-b92c-c3fb5e7636be)
 
 <!--
 **verdulife/verdulife** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
